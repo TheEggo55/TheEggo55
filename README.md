@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TheEggo55
-- 👀 I’m interested in Rhythm Heaven Megamix Modding.
-- 🌱 I’m currently learning Tickflow
+- 👀 I’m interested in <nothing>
+- 🌱 I’m currently learning <nothing>
 - 📫 How to reach me- DM me on Discord @The Eggo55#7759
 
 <!---
